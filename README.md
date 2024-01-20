@@ -5,22 +5,31 @@ Some materials related my learning French, also a guide for other beginners
 
 ## French A1
 
-- Greetings (Hello, Bye, ...)
+- Greetings (Hello, Bye, ...), my notes
   
-- Alphabet (A, B, C, ...)
-
-  By Alexa - https://www.youtube.com/watch?v=OGkbK9-_BRE&list=PLwfaIVZw27xJ_sZcaQp0X9Q3BKtQFqBi0&index=1&pp=gAQBiAQB
+  By Alexa - https://www.youtube.com/watch?v=hd0_GZHHWeE
   
-- Pronouns
-
-- To be added soon
+- Alphabet (A, B, C, ...), my notes
+  
+  By Alexa - https://www.youtube.com/watch?v=OGkbK9-_BRE
+  
+- Pronunciation or accents, my notes
+  
+  TBD
+ 
+- Pronouns (I, you, he, she, we, you, they, ...), my notes
+  
+  By Alexa - https://www.youtube.com/watch?v=8LBvMfR7fWc
+  
+- others will be added soon
 
 ## How to learn, advised by some KOLs
-How-to-learn is a helpful topic, but it is NEVER a key to unlock French learning. Keep speaking and expressing in French in your daily life. 
+How-to-learn is a helpful topic, but it is NEVER the key to unlock French learning. Instead, keep speaking and expressing in French in your daily life. 
 
-- 
+- How to learn French by yourself,my notes
 
-- TBD
+  by Zoe.languages, https://www.youtube.com/watch?v=wOgaV7UDx8E
+
 
 # Suffix
 ## The goal
