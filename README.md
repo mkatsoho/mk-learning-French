@@ -5,13 +5,22 @@ Some materials related my learning French, also a guide for other beginners
 
 ## French A1
 
-- Greetings
+- Greetings (Hello, Bye, ...)
   
-- Alphabet
+- Alphabet (A, B, C, ...)
+
+  By Alexa - https://www.youtube.com/watch?v=OGkbK9-_BRE&list=PLwfaIVZw27xJ_sZcaQp0X9Q3BKtQFqBi0&index=1&pp=gAQBiAQB
   
 - Pronouns
 
 - To be added soon
+
+## How to learn, advised by some KOLs
+How-to-learn is a helpful topic, but it is NEVER a key to unlock French learning. Keep speaking and expressing in French in your daily life. 
+
+- 
+
+- TBD
 
 # Suffix
 ## The goal
