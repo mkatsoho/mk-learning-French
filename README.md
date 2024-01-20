@@ -21,12 +21,16 @@ Some materials related my learning French, also a guide for other beginners
   
   By Alexa - https://www.youtube.com/watch?v=8LBvMfR7fWc
   
-- others will be added soon
+- To be added soon
 
-## How to learn, advised by some KOLs
-How-to-learn is a helpful topic, but it is NEVER the key to unlock French learning. Instead, keep speaking and expressing in French in your daily life. 
+- References
+-- French Essentials Course, by Alexa  https://www.youtube.com/playlist?list=PLV1-QgpUU7N2TVWS6gEVMqEfAFjAl-DV6
+   
 
-- How to learn French by yourself,my notes
+## How-to-learn, advised by KOLs
+How-to-learn is really a helpful topic, but it is NEVER the key to unlock the door to Paris. Instead, keep speaking and expressing in French in your daily life. 
+
+- How to learn French by yourself, my notes
 
   by Zoe.languages, https://www.youtube.com/watch?v=wOgaV7UDx8E
 
